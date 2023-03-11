@@ -7,7 +7,6 @@ sikorskayaolia@gmail.com — preferred method of communication
 2019
 Altai State University, Barnaul
 Arts, Vocational Training (by industry)
-
 2014
 Altai State University, Barnaul
 Arts, Design (by industry)
